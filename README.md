@@ -1,3 +1,3 @@
 # conflict-resolution
 
-poop poop poop
+poop poop pee
